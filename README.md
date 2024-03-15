@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Piyanshu05
-- 👀 I’m interested in Gaming/Game Development.
 - 🌱 I’m currently learning B.tech CSE.
 
 
